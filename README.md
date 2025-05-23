@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Maria Eduarda!
+- I’m Maria Eduarda!
